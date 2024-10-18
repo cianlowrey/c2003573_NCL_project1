@@ -1,0 +1,4 @@
+I want to give a small disclaimer to this final part of the project markdown. I have admittedly had a bad start to this year, both in this project and attendance wise (my smartcard has some issues that I'm trying to sort out which doesn't help either), which have come from some personal mental health related issues that I'm working through. I don't want to use it as an excuse as that isn't what I like to do, but it's certainly had an effect on my work. I haven't been able to use my time as effectively as I could have so I struggled to capitalise on what time I could use to get work done. 
+
+I'm not wanting leniency from this project, but another chance later in the year to redo this project to a much higher standard when hopefully my issues have resolved themselves and I am feeling more secure. 
+Or even a chance to speak to someone about this issue.
